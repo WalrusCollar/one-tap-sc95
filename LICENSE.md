@@ -1,4 +1,4 @@
-
+custom one tap Script offers the most advanced one tap Script, with custom skins and auto-sell. Perfect for dominating any match.
 
 
 
